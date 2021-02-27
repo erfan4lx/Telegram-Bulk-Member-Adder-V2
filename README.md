@@ -4,20 +4,18 @@ The best Windows tool to add Telegram members in your group via User-Id by multi
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx
- 
- Telegram : https://t.me/hack4lx
- 
+  
  Email : erfan4lx@gmail.com
- 
- Email : manifesto.blackhathackingteam@gmail.com
- 
+  
   ## Show on Youtube : https://youtu.be/m7gHlGCrMZs
  
 ## • Our Channels : 
 
-🆔 Our Website : https://M4nifest0.com
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🆔 Our Telegram Channel : https://t.me/M4nifest0
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
+
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 
 <p align="center">
