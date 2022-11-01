@@ -1,7 +1,7 @@
 # Telegram-Bulk-Member-Adder-V2
-The best Windows tool to add Telegram members in your group via User-Id by multiple Telegram accounts V2
+LATEST VERSION : https://github.com/erfan4lx/Telegram-Members-Adder/
 
-Purchase it on my website : https://erfan4lx.com/product/pro-telegram-bulk-member-adder
+The best Windows tool to add Telegram members in your group via User-Id by multiple Telegram accounts V2
 
 Contact with me to get the Password of Zip file on :
 
